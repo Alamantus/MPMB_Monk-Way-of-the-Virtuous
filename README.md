@@ -1,0 +1,1 @@
+A script to add the [Way of the Virtuous monastic tradition](https://www.dmsguild.com/product/222682/Way-of-the-Virtuous--Monk-Tradition) to the [MorePurpleMoreBetter Character Record Sheet](http://www.enworld.org/forum/rpgdownloads.php?do=download&downloadid=1180) for Dungeons & Dragons 5th Edition
